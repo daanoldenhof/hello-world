@@ -1,2 +1,3 @@
 # hello-world
-Eersts
+
+In 2007 I started my bachelor Communication and multimedia design at The Hague University. During this bachelor I was taught a mix of interaction-design, creation, ICT tools, marketing and communication. Especially this mix of creative expression of communication through all kinds of media was the reason for me in 2013 to continue learning at Media Technology MSc, finding creative and unexpected solutions for problems was what I loved most and will do in the future. I am curious, critical, creative and I often show initiative. Regularly I think about everyday things, events and proceedings and ask myself why this is normal for us. Where these things come from or how it could be made a lot easier / better.
